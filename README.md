@@ -9,5 +9,5 @@ Meu nome é Jasmine Barcelos
 ## Você pode entrar em contato comigo 📫
 
 jasminedebarcelos25@gmail.com
-@jasbbarcelos
 
+@jasbbarcelos
